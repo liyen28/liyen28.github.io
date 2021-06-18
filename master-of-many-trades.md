@@ -14,3 +14,5 @@ Over-specialization, eventually retreats into defending what one has learnt rath
 The old Renaissance idea of mastering physical as well as intellectual skills appears to have real grounding in improving our general ability to learn new things.
 
 The fact is, if we exclude the physicality of existence and reduce everything worth knowing down to book-learning, we miss out on a huge chunk of what makes us human.
+
+[← Back](index.html)

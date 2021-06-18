@@ -1,2 +1,2 @@
 # Pale Stone
-https://liyen28.github.io/lessons-from-the-tsurezuregusa.html
+[Lessons From the Tsurezuregusa](https://liyen28.github.io/lessons-from-the-tsurezuregusa.html)

@@ -1,5 +1,5 @@
 # Palm Tangent
-## Master of Many Trades
+### Master of Many Trades
 Our age reveres the specialist but humans are natural polymaths, at our best when we turn our minds to many things.
 
 The real master has not tools at all, only a limitless capacity to improvise with what is at hand. 

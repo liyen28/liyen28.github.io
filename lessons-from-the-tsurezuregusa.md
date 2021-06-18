@@ -1,4 +1,4 @@
-# Pale Stone
+# [Pale Stone] (liyen28.github.io)
 ## Lessons From the Tsurezuregusa
 ### On One's Aim in Life
 The best thing to do in life is to study literature, poetry, and music. Becoming an authority on ancient practices is commendable. One who does not refuse a little wine is a good man.

@@ -1,2 +1,2 @@
-# [Pale Stone](liyen28.github.io)
-[Lessons From the Tsurezuregusa](https://liyen28.github.io/lessons-from-the-tsurezuregusa.html)
+# [Palm Tangent](palmtangent.com)
+[Lessons From the Tsurezuregusa](https://palmtangent.com/lessons-from-the-tsurezuregusa.html)

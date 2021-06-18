@@ -18,4 +18,4 @@ Seclusion in a mountain temple in attendance of the gods will cause even an impu
 #### On the Simple Life
 In China there was once a man called Kyo Yu who had no possessions of any kind; and somebody, on seeing him drink water by scooping it up in his hand, gave him a gourd. He hung it up on the branch of a tree where it made such a noise blowing about in the wind that he threw it away, and once more drank water from his hands.
 
-[← Back](palmtangent.com)
+[← Back](palmtangent.com/index.html)
